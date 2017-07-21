@@ -2,7 +2,7 @@
 's
 ## Childhood
 
-was spent during
+ spent during
 
 ## The Roaring 20s
 were he watched instructional videos so he could someday enter
