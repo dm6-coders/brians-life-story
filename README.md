@@ -2,7 +2,7 @@
 's
 ## Childhood
 
-was spent during his days a Hogwarts where he learned to become a coding wizard!
+was spent during his days a Hogwarts where he learned to become a coding wizard like Gandolf!
 
 ## The Roaring 20s
 were he watched instructional videos so he could someday enter
