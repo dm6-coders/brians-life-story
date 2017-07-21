@@ -2,6 +2,17 @@
 's
 ## Childhood
 
+
+lonely child played in playground alon
+## The Roaring 20s
+still alone
+
+## Fatherhood
+not alone anymore
+
+## Approaching Death
+dead
+
 was spent during his days a Hogwarts where he learned to become a coding wizard!
 
 ## The Roaring 20s
