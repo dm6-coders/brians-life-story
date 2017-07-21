@@ -1,7 +1,6 @@
 # The Life of Brian
 's
 ## Childhood
-
 was spent during
 
 ## The Roaring 20s
