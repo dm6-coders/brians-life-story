@@ -42,6 +42,9 @@ super greate!
 ## Approaching Death
 	One of his students becomes a billionaire and hands him money he never had.
 
+Terrys
+## Terry is the best!
+=======
 ## the boring 20s
 Because of his Alaskan heritage his family complains becuase he likes to keep the ac at a constant 20 degrees.
 
@@ -50,3 +53,4 @@ and experience the stress causing him to be
 
 ## Approaching Death
 Faster than expected...
+master
