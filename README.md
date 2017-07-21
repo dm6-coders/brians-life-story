@@ -1,6 +1,7 @@
 # The Story of Brian
 
 ## Childhood
+	Dungeons and Dragons with his best friend's.
 Invented to use of the word "right?" as a question
 
 ## The Roaring 20s
@@ -25,6 +26,15 @@ Brians is on his deathbed and tells his son to go down town to get him a sugar c
 
 Brian was born in a small village in Madagascar.
 super greate!
+
+## The Roaring 20s
+	He went to a Dryline concert.
+
+## Fatherhood
+	He taught coding to hooligans under the idealism that everyone could better themselves.
+
+## Approaching Death
+	One of his students becomes a billionaire and hands him money he never had.
 
 ## the boring 20s
 Because of his Alaskan heritage his family complains becuase he likes to keep the ac at a constant 20 degrees.
