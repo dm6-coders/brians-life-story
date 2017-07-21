@@ -1,6 +1,12 @@
-# The Story of Brian
-
+# The Life of Brian
+'s
 ## Childhood
+
+was spent during
+
+## The Roaring 20s
+were he watched instructional videos so he could someday enter
+
 	Dungeons and Dragons with his best friend's.
 Invented to use of the word "right?" as a question
 
@@ -39,10 +45,8 @@ super greate!
 ## the boring 20s
 Because of his Alaskan heritage his family complains becuase he likes to keep the ac at a constant 20 degrees.
 
-
 ## Fatherhood
-Brian is father to over 50 people at Devmountain
-He takes long walks on the beach
+and experience the stress causing him to be
 
 ## Approaching Death
-The multiple firings by Dallin has taken a toll on Brian and shortened his life.
+Faster than expected...
