@@ -3,7 +3,7 @@
 ## Childhood
 	Brian was born in an igloo in a poor eskimo village
 
-Brian was born in a small village in Madagascar. 
+Brian was born in a small village in Madagascar.
 super greate!
 
 ## The Roaring 20s
@@ -13,7 +13,7 @@ Madagascar couldn't handle Brian's power and thus he was made an outcast from th
 
 ## Fatherhood
 Brian is father to over 50 people at Devmountain
+He takes long walks on the beach
 
 ## Approaching Death
 The multiple firings by Dallin has taken a toll on Brian and shortened his life.
-
