@@ -1,7 +1,9 @@
 # The Story of Brian
 
 ## Childhood
-	super greate!
+
+Brian was born in a small village in Madagascar. 
+super greate!
 
 ## The Roaring 20s
 
