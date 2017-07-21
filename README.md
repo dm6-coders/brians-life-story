@@ -2,7 +2,7 @@
 's
 ## Childhood
 
-was spent during
+was spent during his days a Hogwarts where he learned to become a coding wizard!
 
 ## The Roaring 20s
 were he watched instructional videos so he could someday enter
@@ -41,6 +41,8 @@ super greate!
 
 ## Approaching Death
 	One of his students becomes a billionaire and hands him money he never had.
+
+
 
 Terrys
 ## Terry is the best!
